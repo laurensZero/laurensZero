@@ -1,6 +1,4 @@
-- 👋 Hi, I’m @laurens1995s
+- 👋 Hi, I’m @laurensZero
 - 👀 I’m interested in Genshin Impact, Minecraft
-- **Contact me**<br>
-Discord: laurens1995#3642
 
 Nahida😍😍
